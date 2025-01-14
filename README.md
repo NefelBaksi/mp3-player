@@ -22,3 +22,6 @@ Liste Verbergen/Anzeigen: Ermöglicht den Benutzern den Zugriff auf die Wiederga
 # Vorschau 📽️
 ![EkranKayd2025-01-1416 52 21-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/57ba474c-dd4a-4573-9d1a-1538d278f1e1)
 
+# Für Weitere Informationen nehmen Sie bitte Kontakt mit mir auf 🦋
+📧 nefel.baksi@gmail.com 
+🔗 https://www.linkedin.com/in/nefel-baksi-941438307/
